@@ -1,0 +1,9 @@
+- Categorise your notes into units
+- Know and explore the key-terms of the course
+- Know a lot of case studies, not in detail but the IB wants to see a lot of them
+- Practice a lot
+- Don't spend more than 10 minutes planning
+- Resources to use: International relations and political sciences textbooks for undergraduates
+- HL Extension: 
+	- Don't make slides, don't make it fancy, focus on the analysis, use slides only for maps, don't put text, focus on the content
+	- Pick a topic that you can discuss in the timeframe that is given to you
